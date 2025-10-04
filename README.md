@@ -1,1 +1,0 @@
-# pinkd_ja
